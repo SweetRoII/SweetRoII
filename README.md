@@ -1,4 +1,4 @@
-## *ੈ♡⸝⸝
+## *ੈ ♡⸝⸝
 
 ![image alt](https://github.com/SweetRoII/SweetRoII/blob/cd563087e553fca2cf8857535a2e504edd1db40e/60fc533780df357abea5918950dc73bf.png)
 <!--
